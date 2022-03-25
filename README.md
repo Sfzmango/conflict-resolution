@@ -1,3 +1,5 @@
 # conflict-resolution
 
-aqwertyuioasfdggvbn
+datgfgjhrsdytkmgxdjyhmn
+
+sedgvZSHBSDf
